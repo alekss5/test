@@ -6,3 +6,4 @@ sdlkjfsdlkf
 hello
 agfsajg
 sdasda
+идиоти
